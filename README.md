@@ -1,1 +1,1 @@
-[Show Live](https://metislackclone.netlify.app/room/kuEh6WCbedjUFMUl74Rq)
+[Show Live](https://metislackclone.netlify.app/)
